@@ -1,2 +1,4 @@
 # mision principal
-* tumbar la dictadura
+
+
+* Buscar a skulls 
